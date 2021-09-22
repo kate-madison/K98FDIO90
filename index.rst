@@ -3,7 +3,7 @@ MOBILE LEGENDS HACK - UNLIMITED DIAMONDS & BATTLE POINTS GENERATOR 2021 (Y98TRNK
 ****************************************
 
 
-Quick Access Here>>   https://speedboostpc.com/8ball/
+Quick Access Here>>   https://speedboostpc.com/mobilelegends
 ============
 
 
